@@ -1,2 +1,2 @@
-# Dit-Manyang Kajang
+# Dit Manyang Kajang
 Twinny Personal Website
